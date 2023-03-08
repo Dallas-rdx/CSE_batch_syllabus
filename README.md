@@ -1,1 +1,0 @@
-# CSE_batch_syllabus
